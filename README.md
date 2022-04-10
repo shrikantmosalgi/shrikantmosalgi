@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @shrikantmosalgi
+- 👀 I’m interested in software devlopment
+- 🌱 I’m currently learning fullsatck diploma in  java
+- 📫 How to reach me my email is shrikantmosalgi1997@gmail.com and contact number is 9158545473
